@@ -1,2 +1,2 @@
-![Screenshot from 2024-08-16 00-06-52](https://github.com/user-attachments/assets/1cf044b4-6dcf-461c-961c-d306789c895f)
-![Screenshot from 2024-08-16 00-07-07](https://github.com/user-attachments/assets/04324da6-148b-4bc2-915c-e1767c6b7560)
+![Screenshot from 2024-08-16 00-11-41](https://github.com/user-attachments/assets/89b88b4e-7ff9-412b-b1c3-27cc7253bbac)
+![Screenshot from 2024-08-16 00-11-25](https://github.com/user-attachments/assets/7f72eda4-3424-44d2-af8d-95500103e6bd)
